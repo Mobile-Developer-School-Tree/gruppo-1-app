@@ -1,1 +1,0 @@
-# gruppo-1-app
